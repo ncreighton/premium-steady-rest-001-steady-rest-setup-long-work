@@ -1,0 +1,2 @@
+# premium-steady-rest-001-steady-rest-setup-long-work
+You've tried pushing through long work sessions, only to hit a wall of exhaustion or distraction. The Steady Rest Setup &amp; Long Work Craft Workshop treats your focus like a delicate workpiece—supporting it with intentional rest intervals so you can sustain deep craft without burnout.  This Notion template solves the hidden cost of unstructured work:
